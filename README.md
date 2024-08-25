@@ -6,4 +6,4 @@ School: Missouri University of Science and Technology <br>
 LinkedIn: https://www.linkedin.com/in/thomasfan/ <br>
 Instagram: https://www.instagram.com/thomas._.fan/ <br>
 📫 Mail: thomasfan100@gmail.com <br> 
-Fun Fact: My old school lunch code was 641350014
+
